@@ -1,4 +1,4 @@
-- Currently looking for 2023 summer 4-month internship :<
+They cooked me up.
 
 <!---
 ZHIYUA15/ZHIYUA15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

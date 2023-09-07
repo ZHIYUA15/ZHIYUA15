@@ -1,4 +1,4 @@
-University cooked me up.
+U of Ass cooked me up.
 
 <!---
 ZHIYUA15/ZHIYUA15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
